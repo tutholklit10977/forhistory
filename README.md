@@ -1,1 +1,1 @@
-The Treaty of Westphalia, signed in 1648, marked the end of the Thirty Years' War in Europe and established the principle of state sovereignty, laying the groundwork for modern international relations.
+The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
