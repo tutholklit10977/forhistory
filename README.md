@@ -1,1 +1,1 @@
-The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
+The rise of economic liberalism in the 18th century, championed by thinkers like Adam Smith, advocated for free markets, limited government intervention, and individual liberty, shaping modern economic theory and policy.
