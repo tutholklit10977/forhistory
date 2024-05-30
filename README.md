@@ -1,1 +1,1 @@
-The triangular trade, a system of trade routes between Europe, Africa, and the Americas, played a central role in the global economy of the 18th century, facilitating the exchange of goods, labor, and resources.
+The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
