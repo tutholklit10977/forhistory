@@ -1,1 +1,1 @@
-The United Kingdom emerged as the world's leading economic power in the 19th century, fueled by industrialization, technological innovation, and global trade networks.
+The cottage industry system, also known as the putting-out system, was prevalent in Europe during the 18th century, involving decentralized production by rural households for urban markets.
