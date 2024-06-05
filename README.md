@@ -1,1 +1,1 @@
-The Dutch Republic emerged as a dominant economic power in the 17th century, with Amsterdam becoming a leading financial center and hub for international trade.
+The rise of joint-stock companies and stock exchanges in the 17th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
