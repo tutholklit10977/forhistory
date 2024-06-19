@@ -1,1 +1,1 @@
-The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
+The War of Spanish Succession, fought from 1701 to 1714, disrupted global trade and led to territorial realignments in Europe and the Americas, impacting economic stability and growth.
