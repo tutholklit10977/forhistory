@@ -1,1 +1,1 @@
-The rise of joint-stock companies and stock exchanges in the 18th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
+The Industrial Revolution led to the rise of factory-based production, the mechanization of agriculture, and the growth of urban populations, transforming social and economic structures worldwide.
