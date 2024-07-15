@@ -1,1 +1,1 @@
-The rise of global trade networks in the 17th century facilitated the exchange of goods, ideas, and cultures between Europe, Asia, Africa, and the Americas, ushering in the era of globalization.
+The rise of joint-stock companies and stock exchanges in the 18th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
