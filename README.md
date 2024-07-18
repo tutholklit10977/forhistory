@@ -1,1 +1,1 @@
-The rise of joint-stock companies and stock exchanges in the 18th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
+The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
