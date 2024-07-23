@@ -1,1 +1,1 @@
-The practice of mercantilist policies, such as tariffs, trade monopolies, and subsidies, aimed to protect domestic industries and promote exports while limiting imports.
+The British Empire emerged as the dominant global economic power in the 18th century, fueled by colonial expansion, maritime trade, and industrialization.
