@@ -1,1 +1,1 @@
-The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
+Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
