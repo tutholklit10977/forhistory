@@ -1,1 +1,1 @@
-Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
+The cottage industry system, also known as the putting-out system, was prevalent in Europe during the 18th century, involving decentralized production by rural households for urban markets.
