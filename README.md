@@ -1,1 +1,1 @@
-The cottage industry system, also known as the putting-out system, was prevalent in Europe during the 18th century, involving decentralized production by rural households for urban markets.
+The rise of joint-stock companies and stock exchanges in the 17th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
