@@ -1,1 +1,1 @@
-The rise of joint-stock companies and stock exchanges in the 17th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
+The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
